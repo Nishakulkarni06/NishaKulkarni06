@@ -17,7 +17,7 @@
 
 - 📫 How to reach me **nishakulkarni2006@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/drive/u/0/home](https://drive.google.com/drive/u/0/home)
+- 📄 Know about my experiences [https://drive.google.com/drive/u/0/home](https://drive.google.com/file/d/1s2E-iUmU-anqm8XWUxp98K7kMWDtiar9/view)
 
 - ⚡ Fun fact **Enthusiastic**
 
